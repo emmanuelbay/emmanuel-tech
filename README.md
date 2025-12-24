@@ -1,1 +1,1 @@
-# emmanuel-tech
+# emmanuel@tech
